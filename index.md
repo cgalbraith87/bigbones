@@ -24,7 +24,7 @@ We don't have muscles to turn to bone, this is impossible!
 
 We thought you'd say that. Understandable, of course.
 
-Included with your purchase is genuine muscle that we have acquired completely ethically. We offer three levels of muscular definition to suit your needs:
+Included with your purchase is genuine muscle that we have acquired _completely ethically_. We offer three levels of muscular definition to suit your needs:
 
 1. Steve Rogers Pre Captain America treatment
 2. Steve Rogers Post Captain America treatment
@@ -51,6 +51,10 @@ The spray turns the muscles to bones.
 The bones then become huge.
 You then become absolutely ripped. 
 You don't even have to work out. Sure, you're dead and you literally have all the time in the world.
+
+With BIG BONES, you can target specific regions and "muscle groups". Want huge quads? Stick it there. Toned Glute? You know what to do. Want to be a literal ball of bone? 
+
+# READ ON!
 
 ## But wouldn't you rather be cruising the yard for babes instead of snapping your twiggy bones at the gym?
 

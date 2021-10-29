@@ -6,35 +6,55 @@
 
 ###Big Bones is the newest invention that will get you absolutely **YOKED**. 
 
-##**100% SATISFACTION GUARANTEED**
+#**100% SATISFACTION GUARANTEED**
 
+##How do we do it?
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
+SIMPLE. We have synthesized the crippling disease called Fibrodysplasia ossificans progressiva. In short, humans with this disease face a terrible prognosis of having all of their muscle fibers turn into bone. Why is this advantangeous to us bony folk?
 
-```markdown
-Syntax highlighted code block
+**Because now it comes in a spray.**
 
-# Header 1
-## Header 2
-### Header 3
+For 5 easy payments of $14.99, plus S&H, you can get enough spray to make Skeletor himself wet his tunic.
 
-- Bulleted
-- List
+But wait!
 
-1. Numbered
-2. List
+We don't have muscles to turn to bone, this is impossible!
 
-**Bold** and _Italic_ and `Code` text
+We thought you'd say that. Understandable, of course.
 
-[Link](url) and ![Image](src)
+Included with your purchase is genuine muscle that we have acquired completely ethically. We offer three levels of muscular definition to suit your needs:
+
+1. Steve Rogers Pre Captain America treatment
+2. Steve Rogers Post Captain America treatment
+3. 
+
+##**Steve Rogers Pre Captain America treatment - Included with purchase of BIG BONES
+
+```Level one comes with the svelte approach. More than your average skeleton, but not much. 
 ```
 
-For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
+##**Steve Rogers Post Captain America treatment - One time upgrade cost of $10
 
-### Jekyll Themes
+```Level two makes everybody swoon. You're ripped. You've got America's ass.```
 
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/cgalbraith87/bigbones/settings/pages). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
+##**The Hulk, in hulk mode - Monthly subscription, $5/month
 
-### Support or Contact
+```Level three means you can't fit through most doorways. It's our most popular package. It requires constant supplication and constant administration of BIG BONES ```
 
-Having trouble with Pages? Check out our [documentation](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://support.github.com/contact) and we’ll help you sort it out.
+
+#**SO HOW DOES IT WORK?
+
+Simple. You take the muscles we send you, place them where you want, spritz them with our spray, and this horrific disease for humankind is literally your gain.
+
+The spray turns the muscles to bones.
+The bones then become huge.
+You then become absolutely ripped. 
+You don't even have to work out. Sure, you're dead and you literally have all the time in the world.
+
+##But wouldn't you rather be cruising the yard for babes instead of snapping your twiggy bones at the gym?
+
+Nobody can stand in your way. You are a shining, pristine example of a skeleton. People will bow before you.
+
+#Call now and order yours today!
+
+##If you order before Halloween, you will get one free BIG BONES travel sized spray bottle, for when you're at your local haunt and need a last minute boost of bony confidence. 

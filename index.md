@@ -30,15 +30,18 @@ Included with your purchase is genuine muscle that we have acquired _completely 
 2. Steve Rogers Post Captain America treatment
 3. The Hulk, in Hulk Mode
 
-## **Steve Rogers Pre Captain America treatment - Included with purchase of BIG BONES**
+## **Steve Rogers Pre Captain America treatment 
+### Included with purchase of BIG BONES**
 
 ```Level one comes with the svelte approach. More than your average skeleton, but not much. ```
 
-## **Steve Rogers Post Captain America treatment - One time upgrade cost of $10**
+## **Steve Rogers Post Captain America treatment
+### One time upgrade cost of $10**
 
 ```Level two makes everybody swoon. You're ripped. You've got America's ass.```
 
-## **The Hulk, in hulk mode - Monthly subscription, $5/month**
+## **The Hulk, in hulk mode
+### Monthly subscription, $5/month**
 
 ```Level three means you can't fit through most doorways. It's our most popular package. It requires constant supplication and constant administration of BIG BONES ```
 

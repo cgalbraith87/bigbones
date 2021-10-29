@@ -1,5 +1,7 @@
 # WELCOME TO BIG BONES
 
+![Logo](https://i.imgur.com/7hNWJ2L.png)
+
 ### Are you a small skeleton? Do other skeletons _laugh_ at you whenever you try to crawl out of your tomb, because you _can't_ pull yourself up? Are you _unable_ to workout and increase your bone density because you _lack_ the proper tools, nutrition, and required organs in order to cultivate mass?
 
 ## LOOK NO FURTHER.
@@ -56,5 +58,7 @@ You don't even have to work out. Sure, you're dead and you literally have all th
 Nobody can stand in your way. You are a shining, pristine example of a skeleton. People will bow before you.
 
 # Call now and order yours today!
+
+![Sale](https://i.imgur.com/RU3ZrRI.png)
 
 ## If you order before Halloween, you will get one free BIG BONES travel sized spray bottle, for when you're at your local haunt and need a last minute boost of bony confidence. 

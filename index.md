@@ -2,13 +2,13 @@
 
 ### Are you a small skeleton? Do other skeletons _laugh_ at you whenever you try to crawl out of your tomb, because you _can't_ pull yourself up? Are you _unable_ to workout and increase your bone density because you _lack_ the proper tools, nutrition, and required organs in order to cultivate mass?
 
-## LOOK NO FURTHER. ##
+## LOOK NO FURTHER.
 
-###Big Bones is the newest invention that will get you absolutely **YOKED**.### 
+###Big Bones is the newest invention that will get you absolutely **YOKED**
 
-#**100% SATISFACTION GUARANTEED**#
+#**100% SATISFACTION GUARANTEED**
 
-##How do we do it?##
+##How do we do it?
 
 SIMPLE. We have synthesized the crippling disease called Fibrodysplasia ossificans progressiva. In short, humans with this disease face a terrible prognosis of having all of their muscle fibers turn into bone. Why is this advantangeous to us bony folk?
 

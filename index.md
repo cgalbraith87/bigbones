@@ -1,6 +1,6 @@
-<div align=center># BIG BONES</div>
+#WELCOME TO BIG BONES
 
-### Markdowns
+### Are you a small skeleton? Do lady skeletons laugh at you whenever you try to crawl out of your tomb? Are you unable to workout and increase your bone density because you lack the proper tools, nutrition, and required organs in order to cultivate mass?
 
 Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
 

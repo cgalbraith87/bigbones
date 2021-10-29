@@ -26,17 +26,17 @@ We thought you'd say that. Understandable, of course.
 
 Included with your purchase is genuine muscle that we have acquired _completely ethically_. We offer three levels of muscular definition to suit your needs:
 
-## **Steve Rogers Pre Captain America treatment 
+## **Steve Rogers Pre Captain America treatment**
 ### Included with purchase of BIG BONES**
 
 ```Level one comes with the svelte approach. More than your average skeleton, but not much. ```
 
-## **Steve Rogers Post Captain America treatment
+## **Steve Rogers Post Captain America treatment**
 ### One time upgrade cost of $10**
 
 ```Level two makes everybody swoon. You're ripped. You've got America's ass.```
 
-## **The Hulk, in hulk mode
+## **The Hulk, in hulk mode**
 ### Monthly subscription, $5/month**
 
 ```Level three means you can't fit through most doorways. It's our most popular package. It requires constant supplication and constant administration of BIG BONES ```

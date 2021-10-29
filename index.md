@@ -28,7 +28,7 @@ Included with your purchase is genuine muscle that we have acquired completely e
 
 1. Steve Rogers Pre Captain America treatment
 2. Steve Rogers Post Captain America treatment
-3. 
+3. The Hulk, in Hulk Mode
 
 ## **Steve Rogers Pre Captain America treatment - Included with purchase of BIG BONES**
 

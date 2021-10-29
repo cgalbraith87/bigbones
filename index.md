@@ -4,11 +4,11 @@
 
 ## LOOK NO FURTHER.
 
-###Big Bones is the newest invention that will get you absolutely **YOKED**. 
+###Big Bones is the newest invention that will get you absolutely **YOKED**.### 
 
-#**100% SATISFACTION GUARANTEED**
+#**100% SATISFACTION GUARANTEED**#
 
-##How do we do it?
+##How do we do it?##
 
 SIMPLE. We have synthesized the crippling disease called Fibrodysplasia ossificans progressiva. In short, humans with this disease face a terrible prognosis of having all of their muscle fibers turn into bone. Why is this advantangeous to us bony folk?
 

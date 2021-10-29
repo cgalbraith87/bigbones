@@ -32,8 +32,7 @@ Included with your purchase is genuine muscle that we have acquired completely e
 
 ## **Steve Rogers Pre Captain America treatment - Included with purchase of BIG BONES**
 
-```Level one comes with the svelte approach. More than your average skeleton, but not much. 
-```
+```Level one comes with the svelte approach. More than your average skeleton, but not much. ```
 
 ## **Steve Rogers Post Captain America treatment - One time upgrade cost of $10**
 

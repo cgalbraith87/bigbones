@@ -26,10 +26,6 @@ We thought you'd say that. Understandable, of course.
 
 Included with your purchase is genuine muscle that we have acquired _completely ethically_. We offer three levels of muscular definition to suit your needs:
 
-1. Steve Rogers Pre Captain America treatment
-2. Steve Rogers Post Captain America treatment
-3. The Hulk, in Hulk Mode
-
 ## **Steve Rogers Pre Captain America treatment 
 ### Included with purchase of BIG BONES**
 

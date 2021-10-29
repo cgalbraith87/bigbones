@@ -12,7 +12,7 @@
 
 ## How do we do it?
 
-SIMPLE. We have synthesized the crippling disease called Fibrodysplasia ossificans progressiva. In short, humans with this disease face a terrible prognosis of having all of their muscle fibers turn into bone. Why is this advantangeous to us bony folk?
+SIMPLE. We have synthesized the crippling disease called Fibrodysplasia ossificans progressiva. In short, humans with this disease face a terrible prognosis of having all of their muscle fibers turn into bone. Why is this advantageous to us bony folk?
 
 **Because now it comes in a spray.**
 
@@ -58,7 +58,7 @@ With BIG BONES, you can target specific regions and "muscle groups". Want huge q
 
 ## But wouldn't you rather be cruising the yard for babes instead of snapping your twiggy bones at the gym?
 
-Nobody can stand in your way. You are a shining, pristine example of a skeleton. People will bow before you.
+Nobody can stand in your way. You are a shining, pristine example of a skeleton. People will bow before you. BIG BONE works instantly. Instant muscle to bone. It works on all kinds of muscle, so if you want to get your own muscles, go for it. We don't support it, but you can do what you want. You're dead. You are literally a skeleton. You're not going to get arrested.
 
 # Call now and order yours today!
 
